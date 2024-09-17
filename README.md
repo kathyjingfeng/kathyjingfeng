@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Wang Jingfeng, Kathy
+- 👋 Hi, I’m Jingfeng Wang, Kathy
 -  I’m interested in Social Work, Public Health, Speech Language Pathology, Translation and Interpretation
 -  I’m currently learning English as my major
 -   
